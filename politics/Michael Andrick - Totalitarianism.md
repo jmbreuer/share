@@ -34,6 +34,6 @@ Democrats have a common interest in paying attention to totalitarian tendencies 
 
 Michael Andrick has a doctorate in philosophy and lives in Berlin, where he works in the private sector. He is a columnist for the Berliner Zeitung and also publishes not only in der Freitag, but also in DLF Kultur, Welt and Cicero. His new book "Im Moralgefängnis" - "In the prison of moralism" - will be published by Westend Verlag in February.
 
-This text is an abridged and revised lecture given to the "Netzwerk Kritische Richter und Anwälte" (KRiStA) on October 21, 2023.
+This text is an abridged and revised lecture given to the "Netzwerk Kritische Richter und Anwälte" (KRiStA) - "Network of critical judges and attorneys" on October 21, 2023.
 
 I translated it with automatic support from the article "Was ist Totalitarismus?" - "What is totalitarianism?" printed in der Freitag issued on January 4th, 2024.
